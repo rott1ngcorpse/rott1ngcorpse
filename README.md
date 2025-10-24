@@ -21,5 +21,5 @@
 ---
 
 <p align="center" style="color:#A9A9A9;">
-  we're all liars.
+  complicated ships  —  harsh choice of words
 </p>
