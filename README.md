@@ -1,16 +1,25 @@
-## Hi there 👋
 
-<!--
-**rott1ngcorpse/rott1ngcorpse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center" style="color:#B76E79;">
+  stop the car, or,
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center" style="color:#A9A9A9;">
+  ill fucking kill you!
+</p>
+
+---
+
+<p align="center" style="color:#B76E79;">
+🕸️  felix ◠  he — claw  ◠  "problematic"	🕸️
+</p>
+
+<p align="center" style="color:#A9A9A9;">
+  whisper to interact, do not touch unless specific people.
+</p>
+
+---
+
+<p align="center" style="color:#A9A9A9;">
+  we're all liars.
+</p>
